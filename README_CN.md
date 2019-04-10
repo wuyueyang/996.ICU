@@ -15,6 +15,7 @@
 相关报道
 ---
 
+- 《人民日报》：[工作996生病ICU，劳动监察部门应积极介入](https://m.weibo.cn/status/4357697258275940)
 - 《共青团中央》：[工作996，生病ICU？关注：年轻人该如何奋斗](https://mp.weixin.qq.com/s/e5qaW6ED_WUunNYG-q7frg)
 - 《中国青年报》：[被“996”工作制围困的年轻人：像是定好闹钟的机器](http://zqb.cyol.com/html/2019-04/02/nw.D110000zgqnb_20190402_1-02.htm)
 
